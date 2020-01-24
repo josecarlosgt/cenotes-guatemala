@@ -1,4 +1,4 @@
-# EExploring the Hidden Gems of Guatemala: Cenotes & Swimming Holes
+# EEExploring the Hidden Gems of Guatemala: Cenotes & Swimming Holes
 By Jose Ortiz. January 24, 2020
 ***
 ![cenote guatemala](https://www.guatemala.com/fotos/201707/Cenotes-de-Oxnajab2-885x500.jpg)
